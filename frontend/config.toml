@@ -1,0 +1,15 @@
+baseURL = 'http://congee.gay/'
+languageCode = 'en-us'
+defaultContentLanguage = 'en-us'
+title = '3.145926535'
+theme = "hugo-vitae"
+
+[params]
+avatar = "https://i.imgur.com/85z2Tot.png"
+
+[params.comments]
+enabled = false
+
+[caches]
+[caches.getjson]
+maxAge = "1h"
