@@ -1,3 +1,3 @@
-[submodule "frontend/themes/hugo-vitae"]
-	path = frontend/themes/hugo-vitae
+[submodule "themes/hugo-vitae"]
+	path = themes/hugo-vitae
 	url = https://github.com/dataCobra/hugo-vitae.git
