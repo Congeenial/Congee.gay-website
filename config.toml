@@ -8,6 +8,9 @@ pagination = 10
 [params]
 avatar = "https://i.imgur.com/85z2Tot.png"
 wordCount = true
+tags = true
+categories = true
+
 
 [params.comments]
 enabled = false
