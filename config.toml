@@ -18,7 +18,7 @@ enabled = false
 # Navigation
 [[menu.main]]
 name = "Home"
-url = "/https://congee.gay/"
+url = "/"
 weight = 1
 
 [[menu.main]]
@@ -28,7 +28,7 @@ weight = 2
 
 [[menu.main]]
 name = "About"
-url = "/aboutme"
+url = "/about"
 weight = 3
 
 [[menu.main]]
