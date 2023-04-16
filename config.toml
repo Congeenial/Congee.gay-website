@@ -22,8 +22,8 @@ url = "/"
 weight = 1
 
 [[menu.main]]
-name = "Resources"
-url = "/fanfiction-resources"
+name = "Translations"
+url = "/tags/translation/"
 weight = 2
 
 [[menu.main]]
@@ -40,3 +40,19 @@ weight = 4
 name = "Categories"
 url = "/categories"
 weight = 5
+
+# Social Menu
+[[params.social]]
+name = "Twitter"
+icon = "fa-brands fa-twitter"
+url = "https://twitter.com/brainrotforever"
+
+[[params.social]]
+name = "Ao3"
+icon = "fa-solid fa-book"
+url = "https://archiveofourown.org/users/Congee/profile"
+
+[[params.social]]
+name = "Pixiv"
+icon = "fa-solid fa-palette"
+url = "https://www.pixiv.net/en/users/2315149"
