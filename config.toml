@@ -1,7 +1,7 @@
 baseURL = 'http://congee.gay/'
 languageCode = 'en-us'
 defaultContentLanguage = 'en-us'
-title = 'Do not let go of your authenticity for the approval of others.'
+title = 'こんげえ'
 theme = "hugo-vitae"
 pagination = 10
 
