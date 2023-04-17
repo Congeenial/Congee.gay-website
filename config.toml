@@ -37,8 +37,8 @@ url = "/tags"
 weight = 4
 
 [[menu.main]]
-name = "Categories"
-url = "/categories"
+name = "Short Ship Fics"
+url = "/tags/ship-fic"
 weight = 5
 
 # Social Menu
