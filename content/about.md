@@ -27,10 +27,12 @@ Size difference, consentual BDSM&TPE `total power exchange`, Power difference dy
 * arknights 
 * monster hunter ( Rise, GU, etc. )
 ___
-#### **In Regards to My Translations**
+#### **In Regards to My Translations/Artwork**
 ##
 My translations for Kimetsu is more-so for personal study. Please do not circulate my translations anywhere and further more, I don't allow repost of my translations OR translating them into other languages. 
 **No exceptions are made.** 
+##
+`I do not allow repost of my artwork without being asked.` I prefer it if you messaged me so that I know where it's being reposted. 
 ___
 #### **Personal Tweets**
 ##

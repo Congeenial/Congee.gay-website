@@ -6,7 +6,7 @@ theme = "hugo-vitae"
 pagination = 10
 
 [params]
-avatar = "https://i.imgur.com/gzYsqae.png"
+avatar = "https://i.imgur.com/36qTcMv.gif"
 wordCount = true
 tags = true
 categories = true
