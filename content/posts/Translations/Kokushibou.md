@@ -96,7 +96,7 @@ category:
 > On the night of the red moon, Kokushibou, who has become a demon, encounters the 80-year-old Yoriichi once again. His hatred is rekindled by the sight of the figure that transcends reason, but in the process, Yoriichi dies of natural causes. Now that the most powerful being is gone, his obsession for victory grows, and feels that he cannot be defeated by anyone.
 ##
 `憎い相手にも関わらず、生涯で最も鮮明な記憶は縁壱のことであった。`
-In spite of his hateful opponent, his most vivid memory in his lifetime was of Yoriichi.
+> In spite of his hateful opponent, his most vivid memory in his lifetime was of Yoriichi.
 ##
 **The next Page after this is all of his abilities. I will not translate them, as the Demon Slayer Manga has most of them Listed.**
 ##
