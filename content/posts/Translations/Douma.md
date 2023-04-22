@@ -23,7 +23,7 @@ category:
 
 ![First page of Douma's fanbook translation](https://i.imgur.com/kU77Cbl.png)
 ##
-**The translations go from left to right.**
+**The translations go from right to left.**
 ## 
 `十二鬼月`
 > The 12 Upper Moons
