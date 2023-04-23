@@ -1,12 +1,12 @@
 baseURL = 'http://congee.gay/'
 languageCode = 'en-us'
 defaultContentLanguage = 'en-us'
-title = 'こんげえ'
+title = '欲の袋に底なし'
 theme = "hugo-vitae"
 pagination = 10
 
 [params]
-avatar = "https://i.imgur.com/36qTcMv.gif"
+avatar = "https://i.imgur.com/Qc5vQOZ.gif"
 wordCount = true
 tags = true
 categories = true
