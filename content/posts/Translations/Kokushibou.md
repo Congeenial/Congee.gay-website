@@ -100,6 +100,15 @@ category:
 ##
 **The next Page after this is all of his abilities. I will not translate them, as the Demon Slayer Manga has most of them Listed.**
 ##
+What I will translate though are the small tidbits of information listed in addition to his skills.
+![Small Extra information](https://i.imgur.com/0sqNxmA.png)
+##
+`百戦錬磨の武人の気迫 `
+> The spirit of a warrior who has fought hundreds of battles
+##
+`会話の間合いが非常に長く丁寧に発声。黒死牟との会話は忍耐が必須だ。`
+> Conversational pauses are very long and carefully vocalized. Patience is essential when conversing with Kokushibou.
+##
 
 ![Third Page of Kokushibou's Fanbook Page](https://i.imgur.com/MPVoicG.png)
 ## 
