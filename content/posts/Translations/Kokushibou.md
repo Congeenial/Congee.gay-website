@@ -87,7 +87,7 @@ category:
 > Unexpected Descendants
 ##
 `一目見ただけで、霞柱の自らの子孫であると把握。技量の高さや強い胆力を褒めたたえ、数百年の時を経た出会いに感嘆した。`
-> At first glance, he grasped that the fog pillar was a descendant of his. He praised the high level of skill and strong gallantry, and marveled at the encounter after several hundred years.
+> At first glance, he grasped that the Mist pillar was a descendant of his. He praised the high level of skill and strong gallantry, and marveled at the encounter after several hundred years.
 ##
 `人間の理を超越した憎き弟と再会を果たす`
 > Reunited with his despised brother who transcended human logic
@@ -119,7 +119,7 @@ What I will translate though are the small tidbits of information listed in addi
 > The onslaught of the Demon Slayers attacks cuts off his amazing regenerative abilities.
 ##
 `隊士四名が決死の覚悟で頸を斬り落とすも、再生してしまう。しかし刀に映る自身の醜い姿を見て愕然と士、幼い頃に縁壱と交わした本来の望みを思い出すと、霞柱に刺された箇所から肉体の崩壊が始まり、消滅した。` 
-> Even though four members of the team resolve to decapitate him, his neck regenerates. However, he was shocked to see his own disfigured appearance reflected in their katanas, and when he remembers the original wish he had exchanged with Yoriichi when he was a child, his body begins to disintegrate from the spot where he was stabbed by the fog pillar, and he is extinguished.
+> Even though four members of the team resolve to decapitate him, his neck regenerates. However, he was shocked to see his own disfigured appearance reflected in their katanas, and when he remembers the original wish he had exchanged with Yoriichi when he was a child, his body begins to disintegrate from the spot where he was stabbed by the Mist pillar, and he is extinguished.
 ##
 `消滅後、幼い頃に縁壱に渡した木の笛が残る。最期までに心にあり続けたのは縁壱だった。`
 > After his death, the wooden flute he gave to Yoriichi when he was a child remains. Yoriichi is the one who remained in his heart until the end of his life.
