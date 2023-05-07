@@ -16,16 +16,18 @@ I love all of Kimetsu, including the canon ships and the entirety of the manga.
 Main ships: **Tanjirou + Upper Moons 1, 2, and 3.** I also like Muzan + Tanjirou. 
 Other ships I might draw: Michikatsu + Yoriichi, Yoriichi + Tanjirou.
 
+
 `Regarding my ship tags:`
 I tag by their emoji, not shipname (to avoid search results). All ship tags are to be assumed switch/versatile. If I use a shipname, it is also to be assumed switch/versastile ( i.e Kokutan can also mean TanKoku, etc. ).
 
 `Favorite Kinks:`
 Size difference, consentual BDSM&TPE `total power exchange`, Power difference dynamics, ABO `Alpha/Alpha, Omega/omega ONLY`, sub/dom dynamics `with switching`, and femdom. Dub-con and non-con are fine with me `to a certain degree`.
 
-`Other interests ( no ships on any of these ):`
+`Other interests ( no ships on any of these, I like exclusively platonic content ):`
 ####
 * arknights 
 * monster hunter ( Rise, GU, etc. )
+* Honkai star rail
 ___
 #### **In Regards to My Translations/Artwork**
 ##
@@ -41,13 +43,13 @@ ___
 #### **Content I Avoid**
 ##
 I have no intentions of making my account a kinkshame one; people are allowed to like what they like. But, there are the content I personally won't read/interact with:
-* Feminization ( Unless consensual )
+* Feminization ( Unless consensual ) 
 * Fixed top/bottom roles
 * Cheating ( NTR Included )
 * Mpreg ( Oviposition is ok )
 > Content where top/bottom are "personality traits" or "secondary sex characteristics" and not by choice-of penetrative sex won't be read.
 ##
-**_Accounts that negatively talk about KMT, insult non-canon/canon ships, attack the author, steal and repost translations, choose to engage in discourse, and post leaked content/spoilers without proper warnings will also be blocked on sight. I don't care about anti/pro-ship either. I like what I like, and I draw/write what I like._**
+**_Accounts that negatively talk about KMT, insult non-canon/canon ships, attack the author of kimetsu, steal and repost translations, choose to engage in discourse, and post leaked content/spoilers without proper warnings will also be blocked on sight. I don't care about anti/pro-ship either. I like what I like, and I draw/write what I like._**
 ___
 #### **NOTPS**
 ## 
@@ -58,6 +60,8 @@ Ships are properly muted in both EN and JPN, so in the case of it appearing on m
 * Douma/Daki
 * Douma/Gyutaro
 * Douma/Kokushibou 
+
+While the ship itself is not a landmine, there are certain ship content for Michikatsu + Yoriichi that I do not personally enjoy and want to see that seems to be the norm in the ship fandom. Since the mute system is a poor filter, I will block to defend myself. 
 ___
 # ABOUT ME IN JPN
 ##
