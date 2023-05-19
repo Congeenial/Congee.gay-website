@@ -21,7 +21,7 @@ Other ships I might draw: Michikatsu + Yoriichi, Yoriichi + Tanjirou.
 I tag by their emoji, not shipname (to avoid search results). All ship tags are to be assumed switch/versatile. If I use a shipname, it is also to be assumed switch/versastile ( i.e Kokutan can also mean TanKoku, etc. ).
 
 `Favorite Kinks:`
-Size difference, consentual BDSM&TPE `total power exchange`, Power difference dynamics, ABO `Alpha/Alpha, Omega/omega ONLY`, sub/dom dynamics `with switching`, and femdom. Dub-con and non-con are fine with me `to a certain degree`. I also don't draw non-con or dub-con. 
+Size difference, consentual BDSM&TPE `total power exchange`, Power difference dynamics, ABO `Alpha/Alpha, Omega/omega ONLY`, sub/dom dynamics `with switching`, and femdom. Dub-con and non-con are fine with me `to a certain degree`. 
 
 `Other interests ( no ships on any of these, I like exclusively platonic content ):`
 ####
