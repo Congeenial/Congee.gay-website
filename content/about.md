@@ -47,9 +47,9 @@ I have no intentions of making my account a kinkshame one; people are allowed to
 * Fixed top/bottom roles
 * Cheating ( NTR Included )
 * Mpreg ( Oviposition is ok )
-> Content where top/bottom are "personality traits" or "secondary sex characteristics" and not by choice-of penetrative sex won't be read.
+> Content where top/bottom are "personality traits" or "secondary sex characteristics" and not by choice-of penetrative sex won't be read. (ex. I won't read A/B/O with alpha/omega relationships, top/bottom coded tags when there's no depiction of sex, Sex pollen, or any sub/dom universe where top/bottom are fixed.)
 ##
-**_Accounts that negatively talk about KMT, insult non-canon/canon ships, attack the author of kimetsu, steal and repost translations, choose to engage in discourse, and post leaked content/spoilers without proper warnings will also be blocked on sight. I don't care about anti/pro-ship either. I like what I like, and I draw/write what I like._**
+**_Accounts that negatively talk about KMT (Analysis threads, comparsions, etc), insult non-canon/canon ships, attack the author of kimetsu, steal and repost translations, choose to engage in discourse, and post leaked content/spoilers without proper warnings will also be blocked on sight. I don't care about anti/pro-ship either. I like what I like, and I draw/write what I like._**
 ___
 #### **NOTPS**
 ## 
