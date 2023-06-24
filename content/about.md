@@ -13,12 +13,15 @@ I like using real world references in order to fuel my headcanons for the Upper 
 ##
 I love all of Kimetsu, including the canon ships and the entirety of the manga. 
 ##
-Main ships: **Tanjirou + Upper Moons 1, 2, and 3.** I also like Muzan + Tanjirou. 
+Main ships: **Tanjirou + Upper Moons 1, 2, and 3.** I also like Tanjirou with the Lower moons, but I don't draw them often. 
 Other ships I might draw: Michikatsu + Yoriichi, Yoriichi + Tanjirou.
 
 
 `Regarding my ship tags:`
 I tag by their emoji, not shipname (to avoid search results). All ship tags are to be assumed switch/versatile. If I use a shipname, it is also to be assumed switch/versastile ( i.e Kokutan can also mean TanKoku, etc. ).
+
+`About my Art:`
+I draw M/F, M/M, and F/F. Anything goes. NSFW (anything naked waist and below) will have a filter and not a poipiku. 
 
 `Favorite Kinks:`
 Size difference, consentual BDSM&TPE `total power exchange`, Power difference dynamics, ABO `Alpha/Alpha, Omega/omega ONLY`, sub/dom dynamics `with switching`, and femdom. Dub-con and non-con are fine with me `to a certain degree`. 
@@ -27,7 +30,8 @@ Size difference, consentual BDSM&TPE `total power exchange`, Power difference dy
 ####
 * arknights 
 * monster hunter ( Rise, GU, etc. )
-* Honkai star rail
+* Honkai star rail 
+* Japanese Culture before the 1950s
 ___
 #### **In Regards to My Translations/Artwork**
 ##
@@ -53,8 +57,8 @@ I have no intentions of making my account a kinkshame one; people are allowed to
 ___
 #### **NOTPS**
 ## 
-Ships are properly muted in both EN and JPN, so in the case of it appearing on my timeline by avoiding the tagging system, I will block. **Platonic content of them is perfectly fine.**
-* Muzan/Kokushibou
+Ships are properly muted in both EN and JPN, so in the case of it appearing on my timeline by avoiding the tagging system, I will block. It is never personal, and it is to protect myself from content I don't want to see. **Platonic content of them is perfectly fine.**
+* Muzan/Kokushibou 
 * Muzan/Yoriichi
 * Muzan/Daki
 * Douma/Daki
