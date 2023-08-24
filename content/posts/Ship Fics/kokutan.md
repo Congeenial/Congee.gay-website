@@ -43,8 +43,8 @@ When Kokushibou pulled away, Tanjirou licked his lips while staring at Kokushibo
 
 Kokushibou used his other hand to forcibly push and spread one of his legs apart; Tanjirou willingly spread the other.
 
- Tanjirou wanted to be full of him and Kokushibou obliged. 
----
+Tanjirou wanted to be full of him and Kokushibou obliged. 
+___
 The morning of Tanjirou sat at the edge of the bed with the usual markings and bruises. He sips his hot cup of tea; the tips of his semi-long locks are frayed in all directions, an apt result from the many times they tussled on the bed even after they were done with their lustful proclivities. Draped over his shoulders was Kokushibou’s kimono that covered some parts of his naked body. 
 
 Kokushibou went to the bathhouse using the cotton shirt and bottom provided by the inn as his new attire; he knew Tanjirou wouldn’t let go of his kimono until the very last minute of their time together here. After his bath, he returned shortly to greet Tanjirou’s sleepy gaze.
