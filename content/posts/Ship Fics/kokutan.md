@@ -1,3 +1,4 @@
+---
 title: Kokutan || Inn time
 date: 2023-08-24
 tags:
