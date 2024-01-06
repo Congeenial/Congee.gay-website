@@ -7,7 +7,7 @@ tags:
 - ship-fic
 ---
 ##
-**_Setting: Kokushibou and Demon King Tanjirou meet up after a few days and enjoy some time together.**
+**Setting: Kokushibou and Demon King Tanjirou meet up after a few days and enjoy some time together.**
 ##
 White sateen sheets shift to the movement of Tanjirou’s leg interloping with Kokushibou’s; he is cradled within his large muscular arms and Tanjirou’s small, innocent laugh lingered throughout the relentlessly cold room. The snowfall had already enveloped much of the greenery on Tanjirou’s way here. His toes are still damp from the snowflakes that creeped their way into his straw boots. 
 
