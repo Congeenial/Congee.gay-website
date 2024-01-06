@@ -27,32 +27,13 @@ url = "/tags/translation/"
 weight = 2
 
 [[menu.main]]
-name = "About"
-url = "/about"
-weight = 3
-
-[[menu.main]]
 name = "Tags"
 url = "/tags"
-weight = 4
+weight = 3
 
 [[menu.main]]
 name = "Short Ship Fics"
 url = "/tags/ship-fic"
-weight = 5
+weight = 4
 
 # Social Menu
-[[params.social]]
-name = "Twitter"
-icon = "fa-brands fa-twitter"
-url = "https://twitter.com/brainrotforever"
-
-[[params.social]]
-name = "Ao3"
-icon = "fa-solid fa-book"
-url = "https://archiveofourown.org/users/Congee/profile"
-
-[[params.social]]
-name = "Pixiv"
-icon = "fa-solid fa-palette"
-url = "https://www.pixiv.net/en/users/2315149"
