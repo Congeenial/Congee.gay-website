@@ -16,7 +16,7 @@ Rarely did Toji let things like “emotions” intervene in his everyday life, a
 
 Money, though, was an expenditure frivolously spent. He'd drain that well dry until it needed replenishing.
 
-So he thinks, and rarely does Toji venture further into the depths of why he feels a certain way, why this kid gravitated towards him. He’s bright and cheerful while Toji is rather dour, all things considered. He didn’t do anything to warrant this odd kindness.
+So he thinks, and rarely does Toji venture further into the depths of *why* he feels a certain way, why this kid gravitated towards him. He’s bright and cheerful while Toji is rather dour, all things considered. He didn’t do anything to warrant this odd kindness.
 
 He came over out of convenience, mainly. A place of residence he knew and didn’t have to pay cash was preferable to a shoddy motel. He didn’t even have to disclose what his “work” was as Yuuji settled with a simple “It’s a secret.”
 
@@ -262,7 +262,7 @@ Yuuji sighed, unappreciative of the assault. He wrenches his arms out of Toji’
 
 The tips of Yuuji’s fingers slide across the couch; he feels evaporating heat and tastes somberness on his tongue.
 
-Liar. Yuuji thought, You were going to sleep the entire time.
+*Liar.* Yuuji thought, *You were going to sleep the entire time.*
 
 He watches the television in vacant silence. Toji joins him; the news presenter retells nothing interesting that transpired today, so Yuuji starts scrolling through his phone and tries to maintain a composed face to hide the increasing panic.
 
