@@ -1,0 +1,45 @@
+---
+title: Updated About Me
+date: 2024-02-20
+tags:
+- about-me
+- personal
+---
+### Currently Working On: ###
+- Vampire AU ( Toji + Yuuji )
+- Bodyguard AU ( Toji + Gojou, Non-romantic )
+- Petplay ( Toji + Yuuji, Fanfic )
+
+### You can: ###
+- Use my art as icons as long as you credit my Twit/X acc
+- DM me to repost to different website
+- Use my fanart as inspiration for fanfiction if you atleast ask beforehand.
+ 
+### You cannot: ###
+- use my fanart for AI training or for NFTs
+- trace or copy my work. 
+- request me to draw anything.
+- Ask for commission. They're always closed.
+ 
+You will generally find me drawing SFW here with very few NSFW pieces. I prefer to write NSFW rather than draw it. Fics will be uploaded to ao3 after a few days from my blog posts.
+ 
+**my NOTPs:**
+- Toji and Megumi romantically in any caliber even if SFW. This extends to even implications of it. ( This is my biggest landmine, so please be wary that mentions of it will make me extremely uncomfortable. )
+- Toji And Naoya.
+- Gojou and Geto romantically. I only like them platonic, as best friends. 
+- Yuuji and Todo 
+ 
+**I'm okay with most Yuuji and Toji ships, but will only talk about Toji/Yuuji or Toji/Gojou on my timeline.**
+ 
+I am NOT a fixed shipper. I don't tag my ship art with the intention of it being unable to be searched via twitter. If I ever use a ship name, its either out of abbreviation due to twit character limits, or I'm talking about them switching. 
+ 
+*In regards to this, I understand the concept of tagging a shipname is to properly tag two characters, but it also has the implications of who tops or bottoms. I don't follow this, never will, and I dislike any implications of it, ESPECIALLY when I feel like I'm required to tag it for a SFW piece depicting no top/bottom dynamic. Therefore, I omit all shipnames from my art/writing posts. I will ONLY use X+Y to indicate two characters together. If that bothers you, I suggest you avoid following me.*
+ 
+**you're free to interpret my art however you like. Tojita, itatoji, tojitatoji, no romance, etc. I don't care.**
+ 
+ 
+My landmines(squicks) for content:
+- NTR ( cheating )
+- BDSM used as a means to sexually abuse someone
+- Mpreg, A/B/O, and any other AU that has secondary sex characteristics to be used as top/bottom tropes. 
+- Lolicon/Shotacon NSFW, including any and all suggestive content. 
