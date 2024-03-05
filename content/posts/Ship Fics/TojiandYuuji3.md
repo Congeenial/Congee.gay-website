@@ -147,7 +147,7 @@ Has it always been this nerve wracking? Has Toji ever looked so damn attractive 
 
 Toji raises an eyebrow and leans in, an arm tenaciously wrapped around Yuuji’s back. “Or do you want more time?” 
 
-Breathe, don’t mess this up. Don’t look stupid. He’s more experienced than me, but! Yuuji thought; he warms his cheeks with his hands, taking in one long breath. I can do this.
+*Breathe, don’t mess this up. Don’t look stupid. He’s more experienced than me, but!* Yuuji thought; he warms his cheeks with his hands, taking in one long breath. *I can do this.*
 
 Yuuji glances one more time over Toji, clutching his own chest. If he is to show him how much he wants it, he needs to court not just Toji, but the monsters he carries with him. 
 
