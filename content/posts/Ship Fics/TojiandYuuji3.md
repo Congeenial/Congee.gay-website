@@ -129,7 +129,7 @@ He types his name in under the last page requesting signature and turns the lapt
 
 “Yes?” Yuuji replies, “Wait, you mean in bed?”
 
-He’s so unsure if Toji’s testing him. Toji never asks for it and Yuuji wants to crumple like a sheet of paper so that he could hide the transfixation on his face when Toji smirks.
+He’s so unsure if Toji’s testing him. Toji *never* asks for it and Yuuji wants to crumple like a sheet of paper so that he could hide the transfixation on his face when Toji smirks.
 ___
 *He agreed!* Yuuji thought, rolling around while keeping a pillow tightly bound to his chest, *He said yes! I haven’t felt like this since I found out I was training with Gojou-sensei!*
 
