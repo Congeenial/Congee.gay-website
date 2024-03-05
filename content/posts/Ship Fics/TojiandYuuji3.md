@@ -48,7 +48,7 @@ He dashes towards the station, waving behind him and promising he’ll text Noba
 
 “Who cares,” Nobara raises her hammer, “Let’s go eat some yakitori! And buy more souvenirs!” 
 
-“Actually, I’m-?!?” Megumi’s last words came out as croaks. Nobara had put him into a locking chokehold, dragging him along.
+“Actually, I’m—?!?” Megumi’s last words came out as croaks. Nobara had put him into a locking chokehold, dragging him along.
 ___
 *Tap, tap, tap, tap, click!*
 
