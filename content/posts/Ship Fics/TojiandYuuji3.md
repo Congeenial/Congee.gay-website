@@ -157,7 +157,7 @@ Yuuji glances one more time over Toji, clutching his own chest. If he is to show
 
 “You’re a dog right now.” Yuuji opens his arms, “So hug me.”
 
-Toji’s groans, “I’m naked, and you want a fucking *hug*?”
+Toji’s groans, “I’m *naked*, and you want a fucking *hug*?”
 
 “...Yeah.” Yuuji deflates his arms, but raises them again, “It’s not a suggestion.”
 
