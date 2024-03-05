@@ -319,7 +319,7 @@ Toji grabs his hand and stands. Yuuji bends down, arms behind Toji’s knees, th
 
 It wasn’t customary to clean oneself in the bathtub, but neither of them found reason to complain. Yuuji raises Toji’s arms and scrubs him while Toji quietly watches. 
 
-The last time he was cleaned by someone else was when he was a child. Perhaps his mother who he can’t remember the face of, or his father who he forgot too, washed the blood off his face after he was beaten. He had cried, and begged every time; he was cleaned so often because he was filthy. Towel over eyes, gauze around his forehead, wrists, legs, each part of his body subjected to berates of the upper echelons of people who found his existence unbearable. He had cried because of fear and he in return, smashed that fear into a billion pieces so it could never hurt him again. 
+The last time he was cleaned by someone else was when he was a child. Perhaps his mother who he can’t remember the face of, or his father who he forgot too, washed the blood off his face after he was beaten. He had cried, and begged every time; he was cleaned so often because he was *filthy*. Towel over eyes, gauze around his forehead, wrists, legs, each part of his body subjected to berates of the upper echelons of people who found his existence unbearable. He had cried because of fear and he in return, smashed that fear into a billion pieces so it could never hurt him again. 
 
 That fear, boiling inside of him as Yuuji moves the sponge over each hair on his arm, simmers when he knows he is safe. He will not hurt him, and Toji closes his eyes. 
 
