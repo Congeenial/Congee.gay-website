@@ -123,7 +123,7 @@ He types his name in under the last page requesting signature and turns the lapt
 
 “This answers your question, Kid.” Toji says.
 
-“You want nothing changed? Okay, Uh. Uhm-” Yuuji fights the hug creeping in to take control of his body. He didn’t prepare for this. He’s over the moon, not looking a gift horse in the mouth, and other abundant idioms. He’s so excited that he mistypes his name. 
+“You want nothing changed? Okay, Uh. Uhm—” Yuuji fights the hug creeping in to take control of his body. He didn’t prepare for this. He’s over the moon, not looking a gift horse in the mouth, and other abundant idioms. He’s so excited that he mistypes his name. 
 
 “You wanna try it now?” Toji asks; Yuuji almost flips the laptop over from shock.
 
