@@ -157,7 +157,7 @@ Yuuji glances one more time over Toji, clutching his own chest. If he is to show
 
 “You’re a dog right now.” Yuuji opens his arms, “So hug me.”
 
-Toji’s groans, “I’m naked, and you want a fucking hug?”
+Toji’s groans, “I’m naked, and you want a fucking *hug*?”
 
 “...Yeah.” Yuuji deflates his arms, but raises them again, “It’s not a suggestion.”
 
@@ -165,7 +165,7 @@ Toji’s groans, “I’m naked, and you want a fucking hug?”
 
 Toji covers his face with his palm, shaking his head. 
 
-Yeah, yeah…It’s an order. I got it, Kid. Toji thought. He begrudgingly sees Yuuji’s eyes instantaneously unravel with childish enthusiasm when Toji pulls him closer. 
+*Yeah, yeah…It’s an order. I got it, Kid.* Toji thought. He begrudgingly sees Yuuji’s eyes instantaneously unravel with childish enthusiasm when Toji pulls him closer. 
 
 Large biceps encircle around Yuuji lacking any strength. His hands lurk and eventually settles to one on Yuuji’s lats, and the other around his nape. Yuuji giggles, tucking his head into Toji’s shoulder blades. 
 
