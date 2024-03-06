@@ -19,5 +19,5 @@ My NOTPs (Will not draw these romantically under any circumstances, platonic int
 
 If requesting NSFW, please note that I don't like anything involving mpreg or A/B/O. Anything else is fair game including things like oviposition, dub-con/non-con, etc. 
 
-Link to request box: https://peing.net/en/requests_here
+Link to request box: https://curiouscat.live/honk_honkhonkk
 ( You can also ask me questions regarding art and writing in general, if you don't have a request.)
