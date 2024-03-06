@@ -7,7 +7,7 @@ tags:
 Some things to note before you request:
 - There is no deadline. I draw them when I feel like it.
 - This is for JJK characters only, with the exception is that if you request kokushibou + tanjirou (kimetsu) from me, I'll be interested.
-- 99.9% of them will be unfinished sketches. These will be practice for me. 
+- 99.9% of them will be unfinished sketches. These will be practice.
 - Will be uploaded in monthly or bi-monthly batches.
 - You can request NSFW and SFW, romantic and platonic interactions.
 - I prioritize any requests with Toji + Yuuji or Toji + Gojou or Fushiguro Family. 
