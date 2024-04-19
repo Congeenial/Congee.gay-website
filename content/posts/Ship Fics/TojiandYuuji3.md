@@ -272,11 +272,11 @@ Mr. Shiu raised an eyebrow. “Even if it pays well?”
 
 Toji smiles. “Kid gave me a contract.”
 
-Mr. Shiu whistles. “Must’ve been a fortune for you out of all people to agree. What’s the gig? Gotta kill someone?”
+He never thought that plausible; makes sense if the Kid was made of money. Mr. Shiu whistles. “Must’ve been a fortune for you out of all people to agree. What’s the gig? Gotta kill someone?”
 
 If only. That would’ve been easier to deal with. “Nah. It’s a retirement plan.” Toji leaves it at that and makes his way to the entrance of the convenience store. “...Thanks for coming.” 
 
-Mr. Shiu laughs; what an odd phrase to hear coming from Toji, out of all people. An assassin rarely thanks the negotiator. He doesn’t believe it. “Pay for my damn cab next time, asshole.” He replies. Mr. Shiu departs once Toji heads inside of the convenience store.
+Mr. Shiu laughs; what an odd phrase to hear coming from Toji, out of all people. An assassin rarely thanks the negotiator. He doesn’t believe it. “Pay for my damn cab next time, asshole.” He replies and departs once Toji heads inside of the convenience store.
 ___
 What a sight to behold.
 
