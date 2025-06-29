@@ -1,9 +1,10 @@
 ---
-title: "Pending article, for review"
-date: 2025-06-28
-offTheRecord: true
-tags:
-    - Arknights
+title: "Top Secret"
+description: "Password to open the top secret: 1234 "
+date: 2024-07-07T13:55:20-05:00
+draft: false
+hiddenFromHomePage: true
+password: "1234"
 ---
 
-this is a test post
+sswowowowowowowowowowowowowowowowowow
