@@ -3,7 +3,7 @@ languageCode = 'en-us'
 defaultContentLanguage = 'en-us'
 title = '欲の袋に底なし'
 theme = "hugo-vitae"
-pagination = 10
+# pagination = 10
 
 [params]
 avatar = "https://i.imgur.com/hxT60XS.gif"
