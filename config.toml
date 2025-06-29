@@ -10,6 +10,8 @@ avatar = "https://i.imgur.com/hxT60XS.gif"
 wordCount = true
 tags = true
 categories = true
+darkmode = true
+
 
 
 [params.comments]
