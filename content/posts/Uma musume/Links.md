@@ -8,6 +8,8 @@ tags:
 ##
 https://gametora.com/umamusume
 
+https://honse.moe/
+
 ### Friend Search ###
 ##
 https://uma-global.pure-db.com/#/search
