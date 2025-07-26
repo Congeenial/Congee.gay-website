@@ -29,6 +29,8 @@ https://docs.google.com/document/d/11X2P7pLuh-k9E7PhRiD20nDX22rNWtCpC1S4IMx_8pQ/
 
 https://docs.google.com/document/d/1Zt6J-ktC9UFFPjD3ifc_-fmjzx1TAsXzlR9vVGCR5Jg/edit?tab=t.0 (Uma Musume Guide)(English)
 
+https://docs.google.com/spreadsheets/d/1oB3eTvKqREtJDWJL0q80O_VjBcpOmRl5xE0z5fZKgFY/edit?gid=634506155#gid=634506155 (Uma Musume Skills Spreadsheet)(English)
+
 ### Reddit Posts ###
 ##
 https://www.reddit.com/r/UmaMusume/comments/123uqfd/guideoverview_to_inheritance_farming_or_how_to/ (Guide/Overview to Inheritance Farming)
