@@ -10,6 +10,10 @@ https://gametora.com/umamusume
 
 https://honse.moe/
 
+https://alpha123.github.io/uma-tools/umalator-global/ (Race Simulator for CM)
+
+
+
 ### Friend Search ###
 ##
 https://uma-global.pure-db.com/#/search
@@ -17,6 +21,8 @@ https://uma-global.pure-db.com/#/search
 ### Support Card Ranking ###
 ##
 https://kamigame.jp/umamusume/page/147029748571208590.html (Japanese)
+
+https://sirderpyherp.github.io/uma-tiers/ (English) (Does not take into account skills)
 
 ### Character Ranking and their best Races ###
 ##
