@@ -12,6 +12,9 @@ https://honse.moe/
 
 https://alpha123.github.io/uma-tools/umalator-global/ (Race Simulator for CM)
 
+https://kachi-dev.github.io/umasim-en/race/ (Stam simulator)
+
+
 
 
 ### Friend Search ###
@@ -45,3 +48,4 @@ https://www.reddit.com/r/UmaMusume/comments/123uqfd/guideoverview_to_inheritance
 ##
 https://gamewith.jp/uma-musume/ (Japanese)
 https://umamusu.wiki/Main_Page (English)
+https://snep.pw/uma/sorter (Uma Sorter)
