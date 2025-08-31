@@ -8,7 +8,7 @@ tags:
 ##
 https://gametora.com/umamusume
 
-https://honse.moe/
+https://uma.moe/
 
 https://alpha123.github.io/uma-tools/umalator-global/ (Race Simulator for CM)
 
@@ -39,6 +39,10 @@ https://docs.google.com/document/d/11X2P7pLuh-k9E7PhRiD20nDX22rNWtCpC1S4IMx_8pQ/
 https://docs.google.com/document/d/1Zt6J-ktC9UFFPjD3ifc_-fmjzx1TAsXzlR9vVGCR5Jg/edit?tab=t.0 (Uma Musume Guide)(English)
 
 https://docs.google.com/spreadsheets/d/1oB3eTvKqREtJDWJL0q80O_VjBcpOmRl5xE0z5fZKgFY/edit?gid=634506155#gid=634506155 (Uma Musume Skills Spreadsheet)(English)
+
+https://docs.google.com/document/d/10fLPmAxKHdpPB-iOhMJD3QQJP7HIk_kTH4iGSNnckTA/edit?tab=t.0 (JP Gacha Banner reviews. Only from 2023 and onwards)
+
+https://docs.google.com/document/d/1iUV8pAc5-eXePJJA8hhgeJA6KjuCczjf68ZxdzYY4tM/edit?tab=t.0#heading=h.eov9wixpwcwm (JP Uma Support Card Banner reviews. More Geared towards JP version)
 
 ### Reddit Posts ###
 ##
