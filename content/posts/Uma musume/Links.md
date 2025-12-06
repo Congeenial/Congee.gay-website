@@ -16,6 +16,14 @@ https://kachi-dev.github.io/umasim-en/race/ (Stam simulator)
 
 https://chronogenesis.net/ (Friend Finder, Club Ranking and Daily Fan Count)
 
+https://ryadaproductions.github.io/UmaCalc/ (Stamina Calc)
+
+https://stacalc.hf-uma.net/ (Stamina Calc, Takes into Account Debuffs)
+
+
+
+
+
 
 ### Friend Search ###
 ##
@@ -28,6 +36,8 @@ https://kamigame.jp/umamusume/page/147029748571208590.html (Japanese)
 https://sirderpyherp.github.io/uma-tiers/ (English) (Does not take into account skills)
 
 https://m.inven.co.kr/uma/compare/?col=8 (Support Card Comparsion tool)(Korean)
+
+https://umacarats.netlify.app/ (Uma Carats Calculator)
 
 ### Character Ranking and their best Races ###
 ##
@@ -53,6 +63,8 @@ https://docs.google.com/spreadsheets/d/1mT_uH79lZwEth6qGvjBOvrRKxwfKixr6vfhgzoW1
 https://docs.google.com/spreadsheets/d/1kpPMEBnFOSkDWRLfHOHT2BjB38YD9Q7oMcuhF2j5V6M/edit?gid=687441613#gid=687441613 (Skill Guide/Tier list for TT, Also shows potential skills you can gain from taking certain G1 races)(English)
 
 https://docs.google.com/spreadsheets/d/10a9nsrhECdsbvP0b7ZKWd1J95Du98kpTozzeJZvpIdY/edit?gid=0#gid=0 (Uma Musume Build Guide)
+
+https://docs.google.com/document/d/1Q3IJKbtkplmuY-PAJMNjYiLtasv0eU0aIBEqp8_C3tg/edit?tab=t.0 (Parent Inheriting Guide, English)
 
 
 ### Reddit Posts ###
